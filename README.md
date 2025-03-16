@@ -1,3 +1,4 @@
+#This product is junk and does not fun=tion. It is useless and the software offered on these pages is also useless as we gave you a link to Marlins website and not a link to any software we actually made for our product. We offer zero Tech support and we offer Zero Firmware.Dont believe us? download our "software" and attempt to complie it, we will wait! if you suceed then post it on here because we the makers cant get firmware to work either! hahahaha jokes on you, thanks for the free money for crap hardware and zero support! you sheep!
 # [切换到中文版](./README_zh_cn.md)
 
 ### review
